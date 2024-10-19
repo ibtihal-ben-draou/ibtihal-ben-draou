@@ -12,7 +12,7 @@
 <br>
 Here, the realms of mechanical systems, electronics, and computer science collide in a spectacular display of innovation. <br>
 I’m a curious mind fueled by the thrill of innovation, navigating the fascinating realms of mechatronics. Every day is an adventure where I blend creativity and engineering to solve real-world challenges.<br> With a heart full of passion and a mind brimming with ideas, I’m constantly evolving and excited to connect with you. <br>Let’s create something extraordinary together!"  
-<br>And wait—before you go, let me share a little secret :sunglasses:: I’m not just a mechatronics engineer; I’m also a self-proclaimed comedian! So if you’re ever in need of a good laugh, you’ve come to the right place  :hand_over_mouth:!
+<br>And wait before you go,  I’d like to share something important: I also prioritize fostering a positive and engaging work environment. I believe that a healthy workplace culture enhances creativity and collaboration, and I strive to contribute to that ethos in every team I join  :blush:!
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
